@@ -9,4 +9,4 @@ Modern LinkedIn Job Searching
 
 [Why Contractors Resist System-Based
 Construction Solutions
-]([https://notoolsnocraft.github.io/analytical-reports/Successful-Cloud-Migration-Failed-Adoption.pdf](https://notoolsnocraft.github.io/analytical-reports/Why-Contractors-Resist-System-Based-Construction-Solutions.pdf))
+](https://notoolsnocraft.github.io/analytical-reports/Why-Contractors-Resist-System-Based-Construction-Solutions.pdf)
