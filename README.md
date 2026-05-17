@@ -17,4 +17,4 @@ Construction Markets
 
 [Adoption Friction in Multi-Stakeholder
 Construction Systems
-](file:///C:/Users/User/Desktop/Adoption-Friction-in-Multi-Stakeholder-Construction-Systems.pdf)
+](https://notoolsnocraft.github.io/analytical-reports/Adoption-Friction-in-Multi-Stakeholder-Construction-Systems.pdf)
