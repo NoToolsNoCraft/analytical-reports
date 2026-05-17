@@ -10,3 +10,7 @@ Modern LinkedIn Job Searching
 [Why Contractors Resist System-Based
 Construction Solutions
 ](https://notoolsnocraft.github.io/analytical-reports/Why-Contractors-Resist-System-Based-Construction-Solutions.pdf)
+
+[Why Sales KPIs Fail in Trust-Based
+Construction Markets
+](https://notoolsnocraft.github.io/analytical-reports/Why-Sales-KPIs-Fail-in-Trust-Based-Construction-Markets.pdf)
