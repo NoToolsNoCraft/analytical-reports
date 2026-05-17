@@ -14,3 +14,7 @@ Construction Solutions
 [Why Sales KPIs Fail in Trust-Based
 Construction Markets
 ](https://notoolsnocraft.github.io/analytical-reports/Why-Sales-KPIs-Fail-in-Trust-Based-Construction-Markets.pdf)
+
+[Adoption Friction in Multi-Stakeholder
+Construction Systems
+](file:///C:/Users/User/Desktop/Adoption-Friction-in-Multi-Stakeholder-Construction-Systems.pdf)
