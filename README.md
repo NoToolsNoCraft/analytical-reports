@@ -18,3 +18,9 @@ Construction Markets
 [Adoption Friction in Multi-Stakeholder
 Construction Systems
 ](https://notoolsnocraft.github.io/analytical-reports/Adoption-Friction-in-Multi-Stakeholder-Construction-Systems.pdf)
+
+
+
+[Kako komunicirati online ponudu
+- Online pozivnice za venčanje sa organizacijom gostiju
+](https://notoolsnocraft.github.io/analytical-reports/Kako-komunicirati-online-ponudu-Online-pozivnice-za-vencanje-sa-organizacijom-gostiju.pdf)
