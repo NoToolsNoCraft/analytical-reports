@@ -1,5 +1,8 @@
 ## 🔗 My Analytical Reports
 
+[The Online Organic Visibility Framework for Local Trade Businesses
+](https://notoolsnocraft.github.io/analytical-reports/The-Online-Organic-Visibility-Framework-for-Local-Trade-Businesses.pdf)
+
 [Successful Cloud Migration, Failed Adoption
 ](https://notoolsnocraft.github.io/analytical-reports/Successful-Cloud-Migration-Failed-Adoption.pdf)
 
