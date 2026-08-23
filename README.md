@@ -1,5 +1,8 @@
 ## 🔗 My Analytical Reports
 
+[Business Headache: Selling to non-buyers
+](https://notoolsnocraft.github.io/analytical-reports/Business-Headache-Selling-to-non-buyers.pdf)
+
 [The Online Organic Visibility Framework for Local Trade Businesses
 ](https://notoolsnocraft.github.io/analytical-reports/The-Online-Organic-Visibility-Framework-for-Local-Trade-Businesses.pdf)
 
