@@ -1,4 +1,4 @@
-## 🔗 My Analytical Writings
+## 🔗 My Analytical Writings 
 
 ["But" as the signal that the constraint may be coming
 ](https://notoolsnocraft.github.io/analytical-reports/But-as-the-signal-that-the-constraint-may-be-coming.pdf)
