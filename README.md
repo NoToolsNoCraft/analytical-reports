@@ -1,5 +1,8 @@
 ## 🔗 My Analytical Reports
 
+["But" as the signal that the constraint may be coming
+](https://notoolsnocraft.github.io/analytical-reports/But-as-the-signal-that-the-constraint-may-be-coming.pdf)
+
 [Business Headache: Selling to non-buyers
 ](https://notoolsnocraft.github.io/analytical-reports/Business-Headache-Selling-to-non-buyers.pdf)
 
